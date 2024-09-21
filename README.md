@@ -11,3 +11,5 @@ Whatever, to be continued in Bangkok. I should work on getting a team ready for 
 It's also the time of Rao game round two and I'm focusing on that. Ethereum is nice but BitTensor is better. Vitalik doesn't want to scale mainnet for whatever reason (L2 kickbacks? technical issues?) while Const is very enthusiastic about Dynamic Tao and it will probably happen.
 
 I would really like zk features on mainnet, why doesn't it happen or even in the plans that I heard? Smart wallets and L2s are fun but are not the thing I want. I want scalable mainnet please.
+
+Const is also very good hosting weekly Novelty Search while Vitalik is doing the celebrety dance and surrounds himself with the same ppl all the time. I've seen and the Infinite Garden event how young hyped hackers (from the FarHack villa, I stay with them actually, cool guys!) were kicked out from the front seats to make space for Vitalik's team. They get to see him all the time, what's the point of even coming if new people are not allowed anyway? I'm not judging, whatever, this not cool tho bro.
